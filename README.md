@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **hemant12602@gmail.com** For Collaboration/Project or Anyt
 - 🤔 **I’m looking for help with:** Your project here
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** hemant12602@gmail.com
-- 😄 **Pronouns:** SK Sir
+- 😄 **Pronouns:** SK
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 ## 🌐 Socials:
