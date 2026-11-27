@@ -4,7 +4,7 @@
 Email Me 👉 ✉️ **hemant12602@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** RAG based AI-Chatbot similar to ChatGPT
-- 🌱 **I’m currently learning:** Data Science & ML
+- 🌱 **I’m currently learning:** Data Science & ML | QGIS | Data Analyst
 - 👯 **I’m looking to collaborate on:** RAG Based system applications with real time analysis
 - 🤔 **I’m looking for help with:** Your project here
 - 💬 **Ask me about:** Collaboration, Tech Support
