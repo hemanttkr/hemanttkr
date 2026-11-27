@@ -10,7 +10,7 @@ Email Me 👉 ✉️ **hemant12602@gmail.com** For Collaboration/Project or Anyt
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** hemant12602@gmail.com
 - 😄 **Pronouns:** SK
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+- ⚡ **Fun fact:** I Love Tech 
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/hemmantkr_) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/hemanttkr) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/hemantk1206) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:hemant12602@gmail.com) 
